@@ -1,4 +1,4 @@
 привет
 
-это новый код написанный в ветке 2
-;ltv rjyakbrn
+'nj jn bp dtnrb vfcnth
+'
